@@ -1,0 +1,1 @@
+# Wise-Folder-Hider-Full-Version-Unlocked
